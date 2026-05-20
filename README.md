@@ -1,6 +1,6 @@
 `Desenvolvedor Backend`
 
-Graduando em Engenharia de Software (5° Semestre), apaixonado por tecnologia, esportes e videogames 🎮 
+Graduando em Engenharia de Software (5° Semestre), apaixonado por tecnologia, esportes e videogames 🎮  
 
 Contate me: arthurbarbosaabab261@gmail.com
 
